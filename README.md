@@ -35,3 +35,4 @@ I would like to know your favorite words/phrases that describe yourself or motiv
 8. Men willingly believe what they wish.
 9. A ship in harbor is safe, but that is not what ships are built for
 10. Don't skip leg day
+11. Without commitment, you'll never start, without consistency, you'll never finish
