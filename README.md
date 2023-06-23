@@ -36,3 +36,4 @@ I would like to know your favorite words/phrases that describe yourself or motiv
 9. A ship in harbor is safe, but that is not what ships are built for
 10. Don't skip leg day
 11. Without commitment, you'll never start, without consistency, you'll never finish
+12. Keep it simple and stupid
